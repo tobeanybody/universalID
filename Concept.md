@@ -16,3 +16,6 @@ NOT4passwort
 When a phone is needed:
 +52 56 2521 6351
 Mexican number
+Check messages here:
+https://www.smsonline.cloud/fr/free_sms_number/+525625216351
+
